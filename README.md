@@ -1,4 +1,3 @@
 Actividad Desafiante 1
 
-Lenin Muñoz
-Manuela Barrera
+Lenin Muñoz - Manuela Barrera
